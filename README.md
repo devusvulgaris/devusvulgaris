@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-I'm Full Stack Developer with 9 years of work experience.
+I'm Full Stack Developer with over 10 years of professional working experience.
 
 ## Skills
 
